@@ -1,0 +1,1 @@
+# legacy-furniture-images-cms
